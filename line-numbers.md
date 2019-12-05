@@ -6,7 +6,7 @@ I know right!
 #### 6
 :)
 #### 8
-#### 9
+GitHub is awesome
 #### 10
 #### 11
 #### 12
